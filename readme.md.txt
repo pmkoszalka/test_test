@@ -1,12 +1,4 @@
 cso
-dsadasdas 
-as
-da
-sf
-af
-as
-fas
-fa
-sf
+dsadasdas s
 asf
 a
